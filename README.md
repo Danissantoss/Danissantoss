@@ -9,5 +9,7 @@ Meu nome é Dani Santos
 - 😄 meus pronomes são ela/dela
 - ⚡ não gosto quando me contrariam
 
+https://media1.tenor.com/m/0kdChdjnVf8AAAAC/jiji-cat.gif
+
 Você pode falar comigo:
 @00001106283776sp@al.educacao.sp.gov.br
